@@ -1,0 +1,2 @@
+# automaizer
+📢💻 ~ HACKATHON ~ 💻📢
